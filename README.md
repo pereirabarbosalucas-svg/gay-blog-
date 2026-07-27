@@ -1,2 +1,2 @@
-# gay blog 
+# scene blog 
 amo bichos e a Melanie Martinez  
